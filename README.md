@@ -1,6 +1,6 @@
 # 💫 About Me:
 
-I am looking for shape
+I am looking for job
 
 
 ## 🌐 Socials:
